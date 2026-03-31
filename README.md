@@ -11,5 +11,5 @@
 💙
 
 
- <p align=center> <img src=https://komarev.com/ghpvc/?username=Starlemon&color=BFC9FF&style=flat-square&label=s'm>
+ <p align=center> <img src=https://komarev.com/ghpvc/?username=Starlemon&color=61BAFF&style=flat-square&label=s'm>
  
