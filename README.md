@@ -1,15 +1,8 @@
-(≧◡≦) ♡
+I like PureShadow, but if you don't, you can block me or ignore me.
 
 
 
 
-![da685c21e4f555bad69f52593c221dc7](https://github.com/user-attachments/assets/bba0e418-e9e2-4179-ab20-09cf374b5bea)
+<img width="200" height="159" alt="hybv9qz6y4ne1" src="https://github.com/user-attachments/assets/b867e61b-d72b-49b1-8196-422ac2a91f11" />
 
-
-
-
-💙
-
-
- 
-<p align=center> <img src=https://komarev.com/ghpvc/?username=iloveheizouu&color=61BAFF&style=flat-square&label=s'm>
+not my problem.
