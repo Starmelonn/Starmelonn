@@ -1,7 +1,7 @@
 I like PureShadow.
 
 
-I respect your OTP, but if you don't respect me, please stay away from me.
+I respect your SHIP, but if you don't respect me, please stay away from me.
 
 
 
