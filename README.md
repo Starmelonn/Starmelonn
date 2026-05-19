@@ -15,7 +15,7 @@
 
 8.  I'd be happy to be your friend.
 
-**9. Do not copy my skin or my styles. if you do pls ask for my permission.**
+❗❗❗  **Do not copy my skin or my styles. if you do pls ask for my permission.**
 
 
 <img width="200" height="159" alt="hybv9qz6y4ne1" src="https://github.com/user-attachments/assets/b867e61b-d72b-49b1-8196-422ac2a91f11" />
